@@ -1,3 +1,3 @@
 # trevor-knowles
 Hello Mr. Hunsicker, It's great to meet you, sir!
-Welcome home! YOu are the best.
+Welcome home! You are the best.
